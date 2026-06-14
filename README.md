@@ -15,3 +15,7 @@ https://docs.google.com/document/d/1SPQUcMN-a_MdFwEgXJztc7lmrO6zGYARaU3kB4WUlSQ/
   
 https://docs.google.com/presentation/d/1qFv9BunbcFG9S-XV0136IZKYg1E_wSwIU7GnXZ4v7Y8/edit?usp=sharing
 
+- RELATÓRIO DE IMPLANTAÇÃO: PORTFOLIOHUB + IA GEMINI;
+
+https://docs.google.com/document/d/11iEJaKp-MuSoeBX8bvjRqQdmUxP-hsKGZz8PgkZJpKs/edit?usp=sharing
+
